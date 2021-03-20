@@ -1,1 +1,5 @@
 # git_project
+SK. KHADAR ABDULLA BASHA
+INFORMATON TECHNOLOGY
+Y19IT101
+abdullabasha6455@gmail.com
